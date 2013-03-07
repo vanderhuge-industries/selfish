@@ -1,0 +1,3 @@
+# Selfish
+
+Get stuffed.
